@@ -14,3 +14,6 @@ It contained the story of the female [Amaurobius ferox, the Black Lace Weaver Sp
 ## Books
 * [10 Great Books on Arachnids (Spiders)](https://sciencebookaday.com/2014/01/13/10-great-books-on-arachnids-spiders/)
 * [Spider Silk: Evolution and 400 Million Years of Spinning, Waiting, Snagging, and Mating](https://sciencebookaday.com/2015/10/17/spider-silk-evolution-and-400-million-years-of-spinning-waiting-snagging-and-mating/)
+
+## Podcasts
+* [Monster Talk: A FEAR OF SPIDERS](https://www.skeptic.com/podcasts/monstertalk/15/01/28/)
