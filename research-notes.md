@@ -17,3 +17,6 @@ It contained the story of the female [Amaurobius ferox, the Black Lace Weaver Sp
 
 ## Podcasts
 * [Monster Talk: A FEAR OF SPIDERS](https://www.skeptic.com/podcasts/monstertalk/15/01/28/)
+
+## Articles
+* [BBC Earth News: Baby cannibal spider gang makes web vibrate in time](http://news.bbc.co.uk/earth/hi/earth_news/newsid_8757000/8757771.stm)
