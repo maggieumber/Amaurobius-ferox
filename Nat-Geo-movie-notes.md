@@ -8,4 +8,4 @@ It's about to be.
 The mother circles the youngsters tapping and vibrating the web and something awakens in the spiderlings.
 They swarm in a frenzy, aware somehow that when something stirs near the web, it's time to eat.
 The mother then presses herself into her babies, stimulating instinct even more. Then the final switch is flicked, and they attack.
-They sink their hundreds of tiny fangs into her and for the first time in their lives, inject venom into prey. It will disolve her from the inside out. 
+They sink their hundreds of tiny fangs into her and for the first time in their lives, inject venom into prey. It will disolve her from the inside out. It's called [matriphagy](https://www.google.com/search?ei=hGrGWv-8F6Ol_QbGsYLgDg&q=matgraphagy&oq=matgraphagy&gs_l=psy-ab.3..0i13k1l6j0i13i30k1l4.833392.837935.0.838194.11.11.0.0.0.0.175.1011.9j2.11.0....0...1c.1.64.psy-ab..0.10.890...0j35i39k1j0i131k1j0i67k1j0i10k1j0i30k1j0i10i30k1j0i5i30k1j0i13i10i30k1j0i13i5i30k1.0.x9H96UIpCIE).
