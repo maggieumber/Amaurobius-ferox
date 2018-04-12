@@ -14,6 +14,7 @@ It contained the story of the female [Amaurobius ferox, the Black Lace Weaver Sp
 
 ## Photos
 * [Jason Steel: Spiders in the UK](http://www.jasonsteelwildlifephotography.yolasite.com/spiders.php)
+* [Spider Anatomy](http://biologyandbiodiversityinspiders.weebly.com/spider-anatomy.html)
 
 ## Books
 * [10 Great Books on Arachnids (Spiders)](https://sciencebookaday.com/2014/01/13/10-great-books-on-arachnids-spiders/)
