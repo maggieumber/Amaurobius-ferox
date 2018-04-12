@@ -6,6 +6,10 @@ It contained the story of the female [Amaurobius ferox, the Black Lace Weaver Sp
 ## Videos
 * [NatGeo: Mother-Eating Spiders | World's Weirdest](https://youtu.be/coUd6d3j_6g)
 * [Tone Killick: Amaurobius ferox with young. 12-07-17](https://youtu.be/B4VcwkIyPpg)
+* [Tone Killick: Amaurobius similis with young](https://youtu.be/htJ2rfCykKs)
+* [Tone Killick: Amaurobius similis matriphagy PT2](https://youtu.be/zmwW-Qw6va0)
+* [Tone Killick: Mother-Eating Spiders. Matriphagy in Amaurobius ferox](https://youtu.be/I6H1exnJkSE)
+* [Tone Killick: Amaurobius ferox with young 15-07-17](https://youtu.be/4y1rIEOMC04)
 * [Olivier Roland: Macro video of Amaurobius spiderlings](https://youtu.be/PjNSURzSHhw)
 
 ## Photos
